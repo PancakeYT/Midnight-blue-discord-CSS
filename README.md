@@ -1,2 +1,2 @@
 # Midnight-blue-discord-CSS
-Idk
+Find tutorial on how to isnstall im to lazy to write the instructions!
